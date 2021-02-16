@@ -11,6 +11,8 @@ Notes on Justices in the Supreme Court of Canada
 ### Justice Rosalie Abella 
 
 * [Wikipedia article](https://en.wikipedia.org/wiki/Rosalie_Abella)
+* [quote](https://globalnews.ca/news/7641177/canada-arbitrary-detention-coalition-2-michaels/)
+    - "what matters is not what you stand for, but what you stand up for"
 
 ### Justice Michael Moldaver
 
