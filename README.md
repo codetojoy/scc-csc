@@ -11,10 +11,13 @@ Notes on Justices in the Supreme Court of Canada
 ### Justice Rosalie Abella 
 
 * will retire July 2021
+* daughter of two Holocaust survivors, classical pianist
+* first Jewish woman on SCC
 * [Wikipedia article](https://en.wikipedia.org/wiki/Rosalie_Abella)
 * [quote](https://globalnews.ca/news/7641177/canada-arbitrary-detention-coalition-2-michaels/)
     - "what matters is not what you stand for, but what you stand up for"
 * [profile](https://www.thestar.com/news/canada/2021/03/07/supreme-courts-rosalie-abella-prepares-to-retire-as-her-legacy-of-defining-equality-seems-built-to-last.html)
+    - frequent dissenters: Justices Russell Brown, Malcolm Rowe, Suzanne Coté
 
 ### Justice Michael Moldaver
 
