@@ -22,6 +22,7 @@ Notes on Justices in the Supreme Court of Canada
 ### Justice Michael Moldaver
 
 * [Wikipedia article](https://en.wikipedia.org/wiki/Michael_Moldaver)
+* will be 75 in December 2022
 
 ### Justice Andromache Karakatsanis
 
@@ -34,10 +35,12 @@ Notes on Justices in the Supreme Court of Canada
 ### Justice Russell Brown 
 
 * [Wikipedia article](https://en.wikipedia.org/wiki/Russell_Brown_(judge))
+* dissented on federal carbon price; climate change hasn't reached level of national concern
 
 ### Justice Malcolm Rowe
 
 * [Wikipedia article](https://en.wikipedia.org/wiki/Malcolm_Rowe)
+* dissented on federal carbon price; climate change hasn't reached level of national concern
 
 ### Justice Sheliah Martin 
 
