@@ -31,16 +31,21 @@ Notes on Justices in the Supreme Court of Canada
 ### Justice Suzanne Côté 
 
 * [Wikipedia article](https://en.wikipedia.org/wiki/Suzanne_C%C3%B4t%C3%A9)
+* dissented on federal carbon price
+    - agreed with 'national concern'
+    - disagreed with power of federal cabinet
 
 ### Justice Russell Brown 
 
 * [Wikipedia article](https://en.wikipedia.org/wiki/Russell_Brown_(judge))
-* dissented on federal carbon price; climate change hasn't reached level of national concern
+* dissented on federal carbon price
+    - climate change hasn't reached level of national concern
 
 ### Justice Malcolm Rowe
 
 * [Wikipedia article](https://en.wikipedia.org/wiki/Malcolm_Rowe)
-* dissented on federal carbon price; climate change hasn't reached level of national concern
+* dissented on federal carbon price
+    - climate change hasn't reached level of national concern
 
 ### Justice Sheliah Martin 
 
