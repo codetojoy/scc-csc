@@ -55,6 +55,10 @@ Notes on Justices in the Supreme Court of Canada
 
 * [Wikipedia article](https://en.wikipedia.org/wiki/Nicholas_Kasirer)
 
+### Justice Mahmud Jamal
+
+* [Wikipedia article](https://en.wikipedia.org/wiki/Mahmud_Jamal)
+* nominated for July 2021 by Prime Minister Trudeau
 
 ## Resources
 
