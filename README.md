@@ -59,6 +59,7 @@ Notes on Justices in the Supreme Court of Canada
 
 * [Wikipedia article](https://en.wikipedia.org/wiki/Mahmud_Jamal)
 * nominated for July 2021 by Prime Minister Trudeau
+* brief bio [here](https://www.canadianlawyermag.com/news/general/legal-community-lauds-nomination-of-mahmud-jamal-to-supreme-court-of-canada/357336)
 
 ## Resources
 
